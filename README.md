@@ -1,0 +1,1 @@
+# how-to-uninstall-apps-on-mac
